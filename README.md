@@ -1,6 +1,6 @@
 <p align="center"> <em> ile sosp7w6sx sx4so1 lvef </em> </p> </p>
 
-<p align="center"> <em> free to int ; dnc ; w2i </em> </p> </p>
+<p align="center"> <em> feel free to int ; dnc ; w2i </em> </p> </p>
 
 <p align="center">
   <img src="https://files.catbox.moe/igdjf5.png" alt="ermm" width="500"/>
