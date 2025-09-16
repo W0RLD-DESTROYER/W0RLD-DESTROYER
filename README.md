@@ -1,4 +1,4 @@
-<p align="center"> <em> ile sosp7w6sx sx4so1 lvef </em> </p> </p>
+<p align="center"> <em> ile sosp7w6 sx4so1 lvef </em> </p> </p>
 
 <p align="center"> <em> feel free to int ; dnc ; w2i </em> </p> </p>
 
