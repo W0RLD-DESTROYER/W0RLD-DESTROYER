@@ -1,12 +1,10 @@
-<p align="center"> <em> ile sosp7w6 sx4so1 lvef </em> </p> </p>
-
 <p align="center"> <em> feel free to int ; dnc ; w2i </em> </p> </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/igdjf5.png" alt="ermm" width="500"/>
+  <img src="https://files.catbox.moe/wrrf3b.png" alt="ermm" width="500"/>
 </p>
 
-<p align="center"> <em> when i am queen on royal throne made out of parts of broken bones of all the devils i have known </em> </p> </p>
+<p align="center"> <em> Listen, do you hear my heartbeat thump over the monitors? </em> </p> </p>
 
 
 <div align="center">
