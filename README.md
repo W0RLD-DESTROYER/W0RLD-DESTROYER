@@ -1,4 +1,4 @@
-<p align="center"> <em> feel free to int ; dnc ; w2i </em> </p> </p>
+<p align="center"> <em> feel DNI ; dnc ; w2i </em> </p> </p>
 
 <p align="center">
   <img src="https://files.catbox.moe/wrrf3b.png" alt="ermm" width="500"/>
