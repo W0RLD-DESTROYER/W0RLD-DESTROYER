@@ -1,11 +1,12 @@
-<p align="center"> <em> DNI ; dnc ; w2i </em> </p> </p>
+<p align="center"> <em> if u wanna int just use whisp ^_^ offtab ! </em> </p> </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/wrrf3b.png" alt="ermm" width="500"/>
+  <img src="https://files.catbox.moe/qh8tuh.png" alt="ermm" width="500"/>
 </p>
 
-<p align="center"> <em> Listen, do you hear my heartbeat thump over the monitors? </em> </p> </p>
+<p align="center"> <em> ﹙♡﹚so2w3sx sx6so1 vefl eie ༢ </em> </p> </p>
 
+<p align="center"> <em> сп2со2сх2 акечи муу кусуноки няму ивантиллы фаенакса амбассадорище ангел + принц и вамп инно ваш господин и просто боженька  </em> </p> </p>
 
 <div align="center">
   <a href="https://github.com/sumi-vitae">
