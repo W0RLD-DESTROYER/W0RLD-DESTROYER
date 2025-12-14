@@ -4,7 +4,7 @@
   <img src="https://files.catbox.moe/qh8tuh.png" alt="ermm" width="500"/>
 </p>
 
-<p align="center"> <em> ﹙♡﹚so2w3sx sx6so1 vefl eie ༢ </em> </p> </p>
+<p align="center"> <em> ﹙♡﹚so2w3sx sx6sx1 vefl eie ༢ </em> </p> </p>
 
 <p align="center"> <em> сп2со2сх2 акечи муу кусуноки няму лука эйчи макима ивантиллы фаенакса амбассадорище ангел + принц и вамп инно ваш господин и просто боженька  </em> </p> </p>
 
