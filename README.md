@@ -1,12 +1,16 @@
-<p align="center"> <em> if u wanna int just use whisp ^_^ offtab ! </em> </p> </p>
+<p align="center"> <em> w2i & offtab  </em> </p> </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/qh8tuh.png" alt="ermm" width="500"/>
+  <img src="https://files.catbox.moe/97x0rg.jpeg" alt="ermm" width="350"/>
 </p>
 
-<p align="center"> <em> ﹙♡﹚so2w3sx sx6sx1 vefl eie ༢ </em> </p> </p>
+<p align="center"> <em> so2sx6sx1 vefl </em> </p> </p>
 
-<p align="center"> <em> сп2со2сх2 акечи муу кусуноки няму лука эйчи макима ивантиллы фаенакса амбассадорище ангел + принц и вамп инно ваш господин и просто боженька  </em> </p> </p>
+<p align="center">  @ДЕКСТЕР МОРГАН:ПРЕДСТАВЬТЕ
+ПОСЛЕДНЯЯ СЕРИЯ ПЯТОГО СЕЗОНА
+ВСЕ НЕ МОГУТ ПОБЕДИТЬ ВЕКНУ НО
+ТУТ ИЗ ТУМАНА ВЫХОДИТ СОН КИ ХУН
+ГОВОРИТ МЫ НЕ ЛОШАДИ МЫ ЛЮДИ  </p> </p>
 
 <div align="center">
   <a href="https://github.com/sumi-vitae">
