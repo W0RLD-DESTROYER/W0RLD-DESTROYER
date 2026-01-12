@@ -4,13 +4,9 @@
   <img src="https://files.catbox.moe/0hg2e4.jpeg" alt="ermm" width="350"/>
 </p>
 
-<p align="center"> <em> so2sx6sx1 vefl </em> </p> </p>
+<p align="center"> <em> so/sp2sx6sx1 vefl </em> </p> </p>
 
-<p align="center">  @ДЕКСТЕР МОРГАН:ПРЕДСТАВЬТЕ
-ПОСЛЕДНЯЯ СЕРИЯ ПЯТОГО СЕЗОНА
-ВСЕ НЕ МОГУТ ПОБЕДИТЬ ВЕКНУ НО
-ТУТ ИЗ ТУМАНА ВЫХОДИТ СОН КИ ХУН
-ГОВОРИТ МЫ НЕ ЛОШАДИ МЫ ЛЮДИ  </p> </p>
+<p align="center">  @Bebebe: у меня вопрос как реагировать когда тебя подруга за ложку трогает знаю шутка но как то неловко становится потом плакать хочется </p> </p>
 
 <div align="center">
   <a href="https://github.com/sumi-vitae">
