@@ -1,7 +1,7 @@
 <p align="center"> <em> w2i & offtab  </em> </p> </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/97x0rg.jpeg" alt="ermm" width="350"/>
+  <img src="https://files.catbox.moe/0hg2e4.jpeg" alt="ermm" width="350"/>
 </p>
 
 <p align="center"> <em> so2sx6sx1 vefl </em> </p> </p>
