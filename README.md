@@ -1,12 +1,9 @@
 <p align="center"> <em>   </em> </p> </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/0hg2e4.jpeg" alt="ermm" width="350"/>
+  <img src="https://files.catbox.moe/8l3om3.jpeg" alt="Ho" width="500"/>
 </p>
 
-<p align="center"> <em> so2so5sx1 vefl </em> </p> </p>
-
-<p align="center">  @Bebebe: у меня вопрос как реагировать когда тебя подруга за ложку трогает знаю шутка но как то неловко становится потом плакать хочется </p> </p>
 
 <div align="center">
   <a href="https://github.com/sumi-vitae">
