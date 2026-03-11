@@ -1,13 +1,10 @@
-
-<p align="center"> <em> everyb0dy loves me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me? </em> </p> </p>
-
 <p align="center">
-  <img src="https://files.catbox.moe/a9ie9g.jpeg" alt="Ho" width="500"/>
+  <img src="https://capsule-render.vercel.app/api?type=waving&height=200&text=whatthwfuck!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!111!!1&color=0:C11EE9,33:2C5DE4,66:30F578,100:F5DA30&fontSize=40&textColor=2E1850&section=header" />
 </p>
-
-
+<p align="center"> <em> everyb0dy loves me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me </em> </p> </p>
 <div align="center">
   <a href="https://github.com/sumi-vitae">
-    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=&color=ffffff&style=flat&labelColor=360a0a" alt="1" style="border-radius: 10px;" />
+    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=iloveyou&color=FF125A&style=social&labelColor=FF125A&base=100000" alt="1" style="border-radius: 10px;" />
   </a>
 </div>
+
