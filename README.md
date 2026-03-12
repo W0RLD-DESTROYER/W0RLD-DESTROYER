@@ -1,14 +1,42 @@
-<p align="center">
-  <img src="https://files.catbox.moe/jpv68p.jpeg" alt="ermm" width="250"/>
-</p>
+
+<div align="center">
+  
+$\color{#A1B64F}{\textsf{me}}$
+$\color{#DFDF87}{\textsf{n'}}$
+$\color{#B07050}{\textsf{hoshi}}$
+
+</div>
+
 
 <p align="center">
-  <img src="https://capsule-render.vercel.app/api?type=waving&height=200&text=whatㅤtheㅤfuck!!!!!!!!!!!!!!!!!!!!!!!!!!111!!1&color=0:C11EE9,33:2C5DE4,66:30F578,100:F5DA30&fontSize=40&textColor=2E1850&section=header" />
+  <img src="https://files.catbox.moe/fa3yia.png" alt="ermm" width="370"/>
 </p>
-<p <em> everyb0dy loves me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me me </em> </p> </p>
+
+
+
+<h1 align="center">
+  <a href="https://guilty.atabook.org/">atabook</a>
+</h1>
+
+</div>
+
+
+<div align="center">
+────────────── ✦ ──────────────
+</div>
+
+<p align="center">
+  <img src="https://files.catbox.moe/jpv68p.jpeg" alt="ermm" width="90"/>
+</p>
+
+
+<p align="center">
+<img src="https://i.gifer.com/3IsK.gif" alt="ermm" width="100"/>
+</p>
+
 <div align="center">
   <a href="https://github.com/sumi-vitae">
-    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=iloveyou&color=FF125A&style=social&labelColor=FF125A&base=100000" alt="1" style="border-radius: 10px;" />
+    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=iloveyou&color=A85931&style=social&labelColor=FF125A&base=100000" alt="1" style="border-radius: 10px;" />
   </a>
 </div>
 
