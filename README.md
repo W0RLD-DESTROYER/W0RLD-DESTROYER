@@ -24,7 +24,11 @@ $\color{#B07050}{\textsf{hoshi}}$
 <div align="center">
 ────────────── ✦ ──────────────
 </div>
-
+<pre>
+<code>
+              near the bakery / main map on safe srv. I'm a semiafk and it may take some time to resp. free to int! 
+</code>
+</pre>
 <p align="center">
   <img src="https://files.catbox.moe/jpv68p.jpeg" alt="ermm" width="90"/>
 </p>
