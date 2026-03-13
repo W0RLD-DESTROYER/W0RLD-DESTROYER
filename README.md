@@ -30,7 +30,8 @@ $\color{#B07050}{\textsf{hoshi}}$
 </code>
 </pre>
 <p align="center">
-  <img src="https://files.catbox.moe/jpv68p.jpeg" alt="ermm" width="90"/>
+  <img src="https://files.catbox.moe/jpv68p.jpeg" alt="ermm" width="190"/>
+  <img src="https://files.catbox.moe/7vbv0u.jpeg" alt="ermm" width="190"/>
 </p>
 
 
