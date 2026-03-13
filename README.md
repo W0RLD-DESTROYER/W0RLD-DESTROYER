@@ -32,6 +32,7 @@ $\color{#B07050}{\textsf{hoshi}}$
 <p align="center">
   <img src="https://files.catbox.moe/jpv68p.jpeg" alt="ermm" width="190"/>
   <img src="https://files.catbox.moe/7vbv0u.jpeg" alt="ermm" width="190"/>
+  <img src="https://files.catbox.moe/axgw8g.jpeg" alt="ermm" width="190"/>
 </p>
 
 
