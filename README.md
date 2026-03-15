@@ -9,8 +9,8 @@ $\color{#A26898}{\textsf{ㅤdevils ㅤ kiss}}$
   
  
 <p align="center">
-  <img src="https://files.catbox.moe/wyqqj0.png" alt="ermm" width="400"/>
- <img src="https://files.catbox.moe/7hizdr.png" alt="ermm" width="600"/> 
+  <img src="https://files.catbox.moe/wyqqj0.png" alt="ermm" width="300"/>
+ <img src="https://files.catbox.moe/7hizdr.png" alt="ermm" width="500"/> 
 $\color{#B98EAC}{\textsf{ׅ  ㅤ ㅤ   ⏝ ͝   ㅤ  ۶  ㅤㅤ♡ㅤ ㅤ 𑄸   ㅤ ͝ ⏝  ㅤㅤ 𝅄}}$
 </p>
 
