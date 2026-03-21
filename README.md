@@ -1,46 +1,41 @@
 
 <div align="center">
   
-$\color{#B98EAC}{\textsf{angels ㅤ fuck }}$
-$\color{#B98EAC}{\textsf{ ㅤ n'  }}$
-$\color{#A26898}{\textsf{ㅤdevils ㅤ kiss}}$
+$\color{#C6A5B5}{\textsf{𝑰'𝒎 ㅤ 𝒂 ㅤ 𝒍𝒐𝒗𝒆𝒓, ㅤ 𝒏𝒐𝒕 ㅤ 𝒂 ㅤ 𝒇𝒊𝒈𝒉𝒕𝒆𝒓, ㅤ 𝒃𝒖𝒕 ㅤ 𝑰 ㅤ 𝒍𝒐𝒗𝒆 ㅤ 𝒊𝒕 ㅤ 𝒘𝒉𝒆𝒏 ㅤ 𝒚𝒐𝒖 ㅤ 𝒘𝒂𝒏𝒕 ㅤ  }}$
+$\color{#8E4747}{\textsf{𝒎𝒆 ㅤ 𝒕𝒐 ㅤ 𝒇𝒊𝒈𝒉𝒕  }}$
+
 
 </div>
-  
+<p align="center">
+  <img src="https://files.catbox.moe/qjt52d.png" alt="ermm" width="700"/>
  
-<p align="center">
-  <img src="https://files.catbox.moe/wyqqj0.png" alt="ermm" width="300"/>
- <img src="https://files.catbox.moe/7hizdr.png" alt="ermm" width="500"/> 
-$\color{#B98EAC}{\textsf{ׅ  ㅤ ㅤ   ⏝ ͝   ㅤ  ۶  ㅤㅤ♡ㅤ ㅤ 𑄸   ㅤ ͝ ⏝  ㅤㅤ 𝅄}}$
+$\color{#B98EAC}{\textsf{ׅ}}$
 </p>
 
 
-<h1 align="center">
-  <a href="https://guilty.atabook.org/"> あㅤatabookㅤ⁺   ㅤ     ₊</a>
-</h1>
-
-</div>
-
-
-<div align="center">
-────────────── ✦ ──────────────
-</div>
-<pre>
-<code>
-              おこ near the bakery / main map on safe srv. I'm a semiafk and it may take some time to resp. free to int! 
-</code>
-</pre>
-<p align="center">
- $\color{#B98EAC}{\textsf{me ㅤ btw ㅤ ---> ㅤ }}$
-  <img src="https://files.catbox.moe/zyf7ng.jpeg" alt="ermm" width="100"/>
-</p>
-
-
-<div align="center">
-  <a href="https://github.com/sumi-vitae">
-    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=iloveyou&color=A26898&style=social&labelColor=FF125A&base=100000" alt="1" style="border-radius: 10px;" />
+ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <a href="https://example.com">𝒂𝒕𝒂𝒃𝒐𝒐𝒌</a> ㅤ
+   ㅤ ㅤ ㅤ ㅤ  ㅤ<a href="https://github.com/sumi-vitae">
+    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=&color=A26898&style=social&labelColor=FF125A&base=100000" alt="1" style="border-radius: 10px;" />
   </a>
 </div>
+
+
+
+
+
+</p>
+<p <em>ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ 
+
+ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
+ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
+ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
+</p>
+<p align="center">
+  <img src="https://files.catbox.moe/uy2ob9.jpeg" alt="ermm" width="50"/>
+</p>
+
+
+
 
 
 
