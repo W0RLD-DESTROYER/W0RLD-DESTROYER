@@ -1,22 +1,27 @@
 
 <p align="center">
-  <img src="https://files.catbox.moe/6mb17m.jpeg" alt="ermm" width="600"/>
+  <img src="https://files.catbox.moe/g9m20h.png" alt="ermm" width="700"/>
 </p>
-
-
- ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <a href="https://guilty.atabook.org/">ATABOOK</a> ㅤ
-   ㅤ ㅤ ㅤ ㅤ  ㅤ<a href="https://github.com/sumi-vitae">
-    <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=&color=A26898&style=social&labelColor=FF125A&base=100000" alt="1" style="border-radius: 10px;" />
-  </a>
-</div>
 
 <p align="center">
-im too lazy to remake readme so
-</p>
+<a href="https://example.com">
+  <img src="https://files.catbox.moe/qfoo6l.png" width="300">
+</a>
+  </p>
 
+ <p align="center">
+ <a href="https://github.com/sumi-vitae">
+  <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=&color=F0ACE5&style=for-the-badge&labelColor=F0ACE5&base=100000" alt="1" style="border-radius: 10px;" />
+  </a>
+ </p>
+<p align="center">
+ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ 
 
-</p>
-<p <em>ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ 
+  <div align="center">
+
+$\color{#F0ACE5}{\textsf{𝙘𝙧𝙚𝙙𝙞𝙩𝙨}}$      $\color{#F0ACE5}{\textsf{𝑝𝑖𝑝𝑒𝑝𝑖𝑒-}}$ $\color{#F0ACE5}{\textsf{-𝑎𝑛𝑑𝑛𝑜𝑏𝑏𝑦}}$ $\color{#F0ACE5}{\textsf{𝑦𝑞𝑛𝑟𝑢}}$ $\color{#F0ACE5}{\textsf{𝙊𝙉 𝙏𝙒𝙏}}$ 
+
+</div>
 
  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
