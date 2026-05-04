@@ -1,25 +1,42 @@
 
 <p align="center">
-  <img src="https://files.catbox.moe/g9m20h.png" alt="ermm" width="700"/>
+  <img src="https://files.catbox.moe/ofyx4e.png" alt="ermm" width="400"/>
 </p>
 
 <p align="center">
 <a href="https://guilty.atabook.org/">
-  <img src="https://files.catbox.moe/qfoo6l.png" width="300">
+  <img src="https://files.catbox.moe/b77uvc.png" width="400">
 </a>
   </p>
+ 
+  <p align="center">
+  <img src="https://files.catbox.moe/s9fh65.png" alt="ermm" width="400"/>
+</p>
 
  <p align="center">
  <a href="https://github.com/sumi-vitae">
-  <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=&color=F0ACE5&style=for-the-badge&labelColor=F0ACE5&base=100000" alt="1" style="border-radius: 10px;" />
+  <img src="https://komarev.com/ghpvc/?username=sumi-vitae&label=&color=38272e&style=for-the-badge&labelColor=38272e&base=100000" alt="1" style="border-radius: 10px;" />
   </a>
  </p>
 <p align="center">
  ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
   <div align="center">
 
-$\color{#F0ACE5}{\textsf{𝙘𝙧𝙚𝙙𝙞𝙩𝙨}}$      $\color{#F0ACE5}{\textsf{𝑝𝑖𝑝𝑒𝑝𝑖𝑒-}}$ $\color{#F0ACE5}{\textsf{-𝑎𝑛𝑑𝑛𝑜𝑏𝑏𝑦}}$ $\color{#F0ACE5}{\textsf{𝑦𝑞𝑛𝑟𝑢}}$ $\color{#F0ACE5}{\textsf{𝙊𝙉 𝙏𝙒𝙏}}$ 
+$\color{#a8879d}{\textsf{𝐜𝐫}}$      $\color{#a8879d}{\textsf{𝐡𝐲𝐫𝐬𝐤𝟎𝟏}}$ $\color{#a8879d}{\textsf{𝐬𝐚𝐢𝐧𝐭𝐦𝐲𝐬𝐞𝐥𝐟}}$ $\color{#a8879d}{\textsf{𝐨𝐧 𝐗}}$ 
 
 </div>
 
