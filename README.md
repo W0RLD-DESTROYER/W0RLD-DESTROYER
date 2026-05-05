@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://files.catbox.moe/7oiw33.png" alt="ermm" width="700"/>
+  <img src="https://files.catbox.moe/7oiw33.png" alt="ermm" width="600"/>
 </p>
 
 <p align="center">
@@ -10,7 +10,7 @@
   </p>
  
   <p align="center">
-  <img src="https://files.catbox.moe/jz6zur.png" alt="ermm" width="800"/>
+  <img src="https://files.catbox.moe/jz6zur.png" alt="ermm" width="700"/>
 </p>
 
  <p align="center">
