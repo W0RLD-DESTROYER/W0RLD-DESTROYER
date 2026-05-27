@@ -12,7 +12,7 @@
 <p align="center">
   <p align="center">
 <a href="https://guilty.atabook.org/">
-  <img src="https://files.catbox.moe/xn2qcu.png" width="250">
+  <img src="https://files.catbox.moe/xn2qcu.png" width="200">
 </a>
   </p>
   </p>
