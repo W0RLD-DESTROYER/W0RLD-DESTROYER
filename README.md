@@ -26,9 +26,6 @@
  ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ 
   <div align="center">
 
-$\color{#5b777f}{\textsf{𝐜𝐫}}$      $\color{#5b777f}{\textsf{𝐡𝐮𝐝𝐝𝐲𝐛𝐮𝐠𝐠𝐲}}$ $\color{#5b777f}{\textsf{𝐬𝐚𝐢𝐧𝐭𝐦𝐲𝐬𝐞𝐥𝐟}}$ $\color{#5b777f}{\textsf{𝐨𝐧 𝐗}}$ 
-
-</div>
 
  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
