@@ -11,17 +11,17 @@
   <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="30">
   <img src="https://files.catbox.moe/5k582s.png" alt="ermm" width="170">
 <p align="center">
-  <img width="30" height="30" alt="image" src="https://cdn3.emoji.gg/emojis/8924-cinnamorollcandy.gif" />  $\color{#68b9f2}{\textsf{ㅤHi ! !ㅤ}}$ I'm $\color{#68b9f2}{\textsf{ㅤSumireㅤ}}$ heㅤㅤ/ $\color{#68b9f2}{\textsf{ㅤanyㅤ}}$
-  $\color{#ab8b84}{\textsf{ I'm️️️ ️️ ️️️️️️ ️️ ️️️oftenㅤㅤAFKㅤㅤorㅤㅤofftab,ㅤㅤbutㅤㅤIㅤㅤwouldn'tㅤㅤmindㅤㅤ}}$
-  $\color{#3c3b7d}{\textsf{ifㅤㅤyouㅤㅤleftㅤㅤaㅤㅤwhisperㅤㅤmessageㅤㅤorㅤㅤsignedㅤㅤmyㅤㅤAta ㅤ}}$ 
+  <img width="30" height="30" alt="image" src="https://cdn3.emoji.gg/emojis/8924-cinnamorollcandy.gif" />  $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️Hi ! ! ️️ ️️️️️️ ️️ ️️️}}$ I'm $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️Sumire ️️ ️️️️️️ ️️ ️️️}}$ he ️️ ️️️️️️ ️️ ️️️/ $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️any ️️ ️️️️️️ ️️ ️️️}}$
+  $\color{#ab8b84}{\textsf{ I'm️️️ ️️ ️️️️️️ ️️ ️️️often ️️ ️️️️️️ ️️ ️️️AFK ️️ ️️️️️️ ️️ ️️️or ️️ ️️️️️️ ️️ ️️️offtab, ️️ ️️️️️️ ️️ ️️️but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wouldn't ️️ ️️️️️️ ️️ ️️️mind ️️ ️️️️️️ ️️ ️️️}}$
+  $\color{#3c3b7d}{\textsf{if ️️ ️️️️️️ ️️ ️️️you ️️ ️️️️️️ ️️ ️️️left ️️ ️️️️️️ ️️ ️️️a ️️ ️️️️️️ ️️ ️️️whisper ️️ ️️️️️️ ️️ ️️️message ️️ ️️️️️️ ️️ ️️️or ️️ ️️️️️️ ️️ ️️️signed ️️ ️️️️️️ ️️ ️️️my ️️ ️️️️️️ ️️ ️️️Ata ️️ ️️️️️️ ️️ ️️️}}$ 
   <img width="30" height="30" alt="image" src="https://media.tenor.com/inv_IC0z2rgAAAAi/cinnamoroll.gif" />
  <p align="center">
   <img src="https://media.tenor.com/_rAA7Ik-HksAAAAj/divider.gif" alt="ermm" width="300">
    <p align="center">
-     I'mㅤㅤactiveㅤㅤinㅤㅤtheㅤㅤIDV,ㅤㅤPersona,ㅤㅤandㅤㅤTypologyㅤㅤcommunity
-    butㅤㅤIㅤㅤwishㅤㅤtoㅤㅤnotㅤㅤinteractㅤㅤwithㅤㅤIDVㅤㅤplayersㅤㅤ/ㅤㅤMatrixㅤㅤ designㅤㅤusers ㅤㅤmostly  <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
+     I'm ️️ ️️️️️️ ️️ ️️️active ️️ ️️️️️️ ️️ ️️️in ️️ ️️️️️️ ️️ ️️️the ️️ ️️️️️️ ️️ ️️️IDV, ️️ ️️️️️️ ️️ ️️️Persona, ️️ ️️️️️️ ️️ ️️️and ️️ ️️️️️️ ️️ ️️️Typology ️️ ️️️️️️ ️️ ️️️community
+    but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wish ️️ ️️️️️️ ️️ ️️️to ️️ ️️️️️️ ️️ ️️️not ️️ ️️️️️️ ️️ ️️️interact ️️ ️️️️️️ ️️ ️️️with ️️ ️️️️️️ ️️ ️️️IDV ️️ ️️️️️️ ️️ ️️️players ️️ ️️️️️️ ️️ ️️️/ ️️ ️️️️️️ ️️ ️️️Matrix ️️ ️️️️️️ ️️ ️️️design ️️ ️️️️️️ ️️ ️️️users  ️️ ️️️️️️ ️️ ️️️mostly  <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
    <p align="center">
-   for $\color{#68b9f2}{\textsf{ㅤㅤpersonalㅤㅤreasonsㅤㅤ}}$ or $\color{#68b9f2}{\textsf{ㅤㅤIWEC!ㅤㅤ}}$ 
+   for $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️personal ️️ ️️️️️️ ️️ ️️️reasons ️️ ️️️️️️ ️️ ️️️}}$ or $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️IWEC! ️️ ️️️️️️ ️️ ️️️}}$ 
      <img width="30" height="30" alt="image" src="https://media.tenor.com/3Ee979oDhMgAAAAj/cinnamoroll.gif" />
    </p>
    <p align="center">
