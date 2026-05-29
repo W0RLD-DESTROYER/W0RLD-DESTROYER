@@ -18,9 +18,8 @@
  <p align="center">
   <img src="https://media.tenor.com/_rAA7Ik-HksAAAAj/divider.gif" alt="ermm" width="300">
    <p align="center">
-   <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
      I'mㅤㅤactiveㅤㅤinㅤㅤtheㅤㅤIDV,ㅤㅤPersona,ㅤㅤandㅤㅤTypologyㅤㅤcommunity
-    butㅤㅤIㅤㅤwishㅤㅤtoㅤㅤnotㅤㅤinteractㅤㅤwithㅤㅤIDVㅤㅤplayersㅤㅤ/ㅤㅤMatrixㅤㅤ designㅤㅤusers ㅤㅤmostly
+    butㅤㅤIㅤㅤwishㅤㅤtoㅤㅤnotㅤㅤinteractㅤㅤwithㅤㅤIDVㅤㅤplayersㅤㅤ/ㅤㅤMatrixㅤㅤ designㅤㅤusers ㅤㅤmostly  <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
    <p align="center">
    for $\color{#68b9f2}{\textsf{ㅤㅤpersonalㅤㅤreasonsㅤㅤ}}$ or $\color{#68b9f2}{\textsf{ㅤㅤIWEC!ㅤㅤ}}$ 
      <img width="30" height="30" alt="image" src="https://media.tenor.com/3Ee979oDhMgAAAAj/cinnamoroll.gif" />
