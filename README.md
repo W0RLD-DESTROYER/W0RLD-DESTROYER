@@ -1,6 +1,5 @@
 
 <p align="center">
-  <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="100" align="right">
   <img src="https://files.catbox.moe/wtuhew.png" alt="ermm" width="300" align="right">
   <a href="https://guilty.atabook.org/">
   <img src="https://files.catbox.moe/dnyipz.png" width="170">
