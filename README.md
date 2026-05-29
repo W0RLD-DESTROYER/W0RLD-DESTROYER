@@ -19,9 +19,10 @@
   <img src="https://media.tenor.com/_rAA7Ik-HksAAAAj/divider.gif" alt="ermm" width="300">
    <p align="center">
      I'm ️️ ️️️️️️ ️️ ️️️active ️️ ️️️️️️ ️️ ️️️in ️️ ️️️️️️ ️️ ️️️the ️️ ️️️️️️ ️️ ️️️IDV, ️️ ️️️️️️ ️️ ️️️Persona, ️️ ️️️️️️ ️️ ️️️and ️️ ️️️️️️ ️️ ️️️Typology ️️ ️️️️️️ ️️ ️️️community
-    but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wish ️️ ️️️️️️ ️️ ️️️to ️️ ️️️️️️ ️️ ️️️not ️️ ️️️️️️ ️️ ️️️interact ️️ ️️️️️️ ️️ ️️️with ️️ ️️️️️️ ️️ ️️️IDV ️️ ️️️️️️ ️️ ️️️players ️️ ️️️️️️ ️️ ️️️/ ️️ ️️️️️️ ️️ ️️️Matrix ️️ ️️️️️️ ️️ ️️️design ️️ ️️️️️️ ️️ ️️️users  ️️ ️️️️️️ ️️ ️️️mostly  <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
+    but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wish ️️ ️️️️️️ ️️ ️️️to ️️ ️️️️️️ ️️ ️️️not ️️ ️️️️️️ ️️ ️️️interact ️️ ️️️️️️ ️️ ️️️with ️️ ️️️️️️ ️️ ️️️IDV ️️ ️️️️️️ ️️ ️️️players ️️ ️️️️️️ ️️ ️️️/ ️️ ️️️️️️ ️️ ️️️Matrix ️️ ️️️️️️ ️️ ️️️design ️️ ️️️️️️ ️️ ️️️users  ️️ ️️️️️️ ️️ ️️️mostly  
    <p align="center">
-   for $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️personal ️️ ️️️️️️ ️️ ️️️reasons ️️ ️️️️️️ ️️ ️️️}}$ or $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️IWEC! ️️ ️️️️️️ ️️ ️️️}}$ 
+   <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
+     for $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️personal ️️ ️️️️️️ ️️ ️️️reasons ️️ ️️️️️️ ️️ ️️️}}$ or $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️IWEC! ️️ ️️️️️️ ️️ ️️️}}$ 
      <img width="30" height="30" alt="image" src="https://media.tenor.com/3Ee979oDhMgAAAAj/cinnamoroll.gif" />
    </p>
    <p align="center">
