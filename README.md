@@ -18,7 +18,7 @@
  <p align="center">
   <img src="https://media.tenor.com/_rAA7Ik-HksAAAAj/divider.gif" alt="ermm" width="300">
    <p align="center">
-     I'm ️️ ️️️️️️ ️️ ️️️active ️️ ️️️️️️ ️️ ️️️in ️️ ️️️️️️ ️️ ️️️the ️️ ️️️️️️ ️️ ️️️IDV, ️️ ️️️️️️ ️️ ️️️Persona, ️️ ️️️️️️ ️️ ️️️and ️️ ️️️️️️ ️️ ️️️Typology ️️ ️️️️️️ ️️ ️️️community
+     I'm ️️ ️️️️️️ ️️ ️️️active ️️ ️️️️️️ ️️ ️️️in ️️ ️️️️️️ ️️ ️️️the ️️ ️️️️️️ ️️ ️️️IDV, ️️ ️️️️️️ ️️ ️️️Persona, ️️ ️️️️️️ ️️ ️️️and ️️ ️️️️️️ ️️ ️️️Typology ️️ ️️️️️️ ️️ ️️️community ️️ ️️️️️️ ️️ ️️️
     but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wish ️️ ️️️️️️ ️️ ️️️to ️️ ️️️️️️ ️️ ️️️not ️️ ️️️️️️ ️️ ️️️interact ️️ ️️️️️️ ️️ ️️️with ️️ ️️️️️️ ️️ ️️️IDV ️️ ️️️️️️ ️️ ️️️players ️️ ️️️️️️ ️️ ️️️/ ️️ ️️️️️️ ️️ ️️️Matrix ️️ ️️️️️️ ️️ ️️️design ️️ ️️️️️️ ️️ ️️️users  ️️ ️️️️️️ ️️ ️️️mostly  
    <p align="center">
    <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="300" align="right">
