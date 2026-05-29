@@ -21,7 +21,6 @@
      I'm ️️ ️️️️️️ ️️ ️️️active ️️ ️️️️️️ ️️ ️️️in ️️ ️️️️️️ ️️ ️️️the ️️ ️️️️️️ ️️ ️️️IDV, ️️ ️️️️️️ ️️ ️️️Persona, ️️ ️️️️️️ ️️ ️️️and ️️ ️️️️️️ ️️ ️️️Typology ️️ ️️️️️️ ️️ ️️️community ️️ ️️️️️️ ️️ ️️️
     but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wish ️️ ️️️️️️ ️️ ️️️to ️️ ️️️️️️ ️️ ️️️not ️️ ️️️️️️ ️️ ️️️interact ️️ ️️️️️️ ️️ ️️️with ️️ ️️️️️️ ️️ ️️️IDV ️️ ️️️️️️ ️️ ️️️players ️️ ️️️️️️ ️️ ️️️/ ️️ ️️️️️️ ️️ ️️️Matrix ️️ ️️️️️️ ️️ ️️️design ️️ ️️️️️️ ️️ ️️️users  ️️ ️️️️️️ ️️ ️️️mostly  
    <p align="center">
-    <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="400">
           <a href="https://discord.com/users/919620110057087067">
      <img src="https://lanyard.cnrad.dev/api/919620110057087067?theme=light&bg=ab8b842&borderRadius=10" width="250" align="right">
      </a>
