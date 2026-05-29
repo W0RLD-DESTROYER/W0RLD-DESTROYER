@@ -25,7 +25,7 @@
      <img src="https://lanyard.cnrad.dev/api/919620110057087067?theme=light&bg=ab8b842&borderRadius=10" width="250" align="right">
      </a>
      for $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️personal ️️ ️️️️️️ ️️ ️️️reasons ️️ ️️️️️️ ️️ ️️️}}$ or $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️IWEC! ️️ ️️️️️️ ️️ ️️️}}$ 
-     <img width="30" height="30" alt="image" src="https://media.tenor.com/3Ee979oDhMgAAAAj/cinnamoroll.gif" />
+     <img width="20" height="20" alt="image" src="https://media.tenor.com/3Ee979oDhMgAAAAj/cinnamoroll.gif" />
    <p align="center">
    <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="1000">
    <img src="https://files.catbox.moe/8e2nhs.png" alt="ermm" width="400" align="center">
