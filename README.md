@@ -11,7 +11,7 @@
   <img src="https://files.catbox.moe/okrdz9.png" alt="ermm" width="30">
   <img src="https://files.catbox.moe/5k582s.png" alt="ermm" width="170">
 <p align="center">
-  <img width="30" height="30" alt="image" src="https://cdn3.emoji.gg/emojis/8924-cinnamorollcandy.gif" />  $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️Hi ! ! ️️ ️️️️️️ ️️ ️️️}}$ I'm $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️Sumire ️️ ️️️️️️ ️️ ️️️}}$ he ️️ ️️️️️️ ️️ ️️️/ $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️any ️️ ️️️️️️ ️️ ️️️}}$
+  <img width="30" height="30" alt="image" src="https://cdn3.emoji.gg/emojis/8924-cinnamorollcandy.gif" />  $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️Hi ! ! ️️ ️️️️️️ ️️ ️️️}}$ I'm $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️Sumire ️️ ️️️️️️ ️️ ️️️}}$ he ️️ ️️️️️️ ️️ ️️️/ $\color{#68b9f2}{\textsf{ ️️ ️️️️️️ ️️ ️️️they ️️ ️️️️️️ ️️ ️️️}}$
   $\color{#ab8b84}{\textsf{ I'm️️️ ️️ ️️️️️️ ️️ ️️️often ️️ ️️️️️️ ️️ ️️️AFK ️️ ️️️️️️ ️️ ️️️or ️️ ️️️️️️ ️️ ️️️offtab, ️️ ️️️️️️ ️️ ️️️but ️️ ️️️️️️ ️️ ️️️I ️️ ️️️️️️ ️️ ️️️wouldn't ️️ ️️️️️️ ️️ ️️️mind ️️ ️️️️️️ ️️ ️️️}}$
   $\color{#3c3b7d}{\textsf{if ️️ ️️️️️️ ️️ ️️️you ️️ ️️️️️️ ️️ ️️️left ️️ ️️️️️️ ️️ ️️️a ️️ ️️️️️️ ️️ ️️️whisper ️️ ️️️️️️ ️️ ️️️message ️️ ️️️️️️ ️️ ️️️or ️️ ️️️️️️ ️️ ️️️signed ️️ ️️️️️️ ️️ ️️️my ️️ ️️️️️️ ️️ ️️️Ata ️️ ️️️️️️ ️️ ️️️}}$ 
   <img width="30" height="30" alt="image" src="https://media.tenor.com/inv_IC0z2rgAAAAi/cinnamoroll.gif" />
