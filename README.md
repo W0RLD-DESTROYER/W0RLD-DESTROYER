@@ -12,7 +12,7 @@
   <img src="https://files.catbox.moe/5k582s.png" alt="ermm" width="170">
 <p align="center">
   <img width="30" height="30" alt="image" src="https://cdn3.emoji.gg/emojis/8924-cinnamorollcandy.gif" />  $\color{#68b9f2}{\textsf{ㅤHi ! !ㅤ}}$ I'm $\color{#68b9f2}{\textsf{ㅤSumireㅤ}}$ heㅤㅤ/ $\color{#68b9f2}{\textsf{ㅤanyㅤ}}$
-  $\color{#ab8b84}{\textsf{ I'mㅤㅤoftenㅤㅤAFKㅤㅤorㅤㅤofftab,ㅤㅤbutㅤㅤIㅤㅤwouldn'tㅤㅤmindㅤㅤ}}$
+  $\color{#ab8b84}{\textsf{ I'm️️️ ️️ ️️️️️️ ️️ ️️️oftenㅤㅤAFKㅤㅤorㅤㅤofftab,ㅤㅤbutㅤㅤIㅤㅤwouldn'tㅤㅤmindㅤㅤ}}$
   $\color{#3c3b7d}{\textsf{ifㅤㅤyouㅤㅤleftㅤㅤaㅤㅤwhisperㅤㅤmessageㅤㅤorㅤㅤsignedㅤㅤmyㅤㅤAta ㅤ}}$ 
   <img width="30" height="30" alt="image" src="https://media.tenor.com/inv_IC0z2rgAAAAi/cinnamoroll.gif" />
  <p align="center">
